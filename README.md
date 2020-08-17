@@ -1,2 +1,0 @@
-# PaterArt
-Mi trabajo artístico
